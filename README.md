@@ -7,6 +7,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 alurastartestudante@email.com
 
-@alurastartestudante
 0001082592766sp2al.educacao.sp.gov.br 
-milymirella15
+@milymirella15
